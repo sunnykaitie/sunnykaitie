@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sunnykaitie
-- 👀 I’m interested in biology and pokemon go <3
+- 👀 I’m interested in biology 
 - 🌱 I’m currently learning how to vscode???
 - 💞️ I’m looking to collaborate on finding happiness :)
 - 📫 How to reach me is by sending me a messenger owl !!
